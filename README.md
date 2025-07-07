@@ -1,1 +1,25 @@
-# THE-BEGINNING-
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2071.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2072.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2073.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2074.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2075.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2076.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2077.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2078.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2079.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2080.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2081.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2082.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2083.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2084.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2085.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2086.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2087.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2088.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2089.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2090.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2091.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2092.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2093.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2094.cbzhttps://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2095.cbz
+https://github.com/Ivan010619/THE-BEGINNING-/raw/refs/heads/main/Chapter%2095.v2.cbz
